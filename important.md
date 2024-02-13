@@ -1,0 +1,1 @@
+It's importand to fully understand the work full because the aim is to know and understand what you are doing and that's important in being a proffessional developer.
